@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DoDucNamFU
+- 👋 Hi, I’m @DoDucNam.IT
 - 👀 My interest is secret
 - 🌱 I'm actually learning technology.
 - 💞️ ........
